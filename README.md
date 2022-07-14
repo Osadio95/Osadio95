@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Osadio95
+- 👋 Hi everyone, I’m @Osadio95
 - 👀 I’m interested in #biotechnolgy, #biology, #bioinformatics, #biologicalengineering, #astrobiology
 - 🌱 I’m currently learning biologcal engineering
 - 💞️ I’m looking to collaborate on ...
